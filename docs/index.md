@@ -1,3 +1,13 @@
+ <p>生命其实都是一样的。活着的就是生命。死了就没有了生命。 <br>
+所有活着的都是生命。牲畜，天空的飞鸟，海里的鱼，还有植物。 <br>
+生命是人不能创造的。人只能繁衍。 <br>
+Life are all the same. Living is life. Once died, no more life.  <br>
+Everyting living is life. Catttles, birds in the air, fish in the sea, and plants. <br>
+No man can create life. Men can only multiply it. <br>
+Or care it. Or hurt it. <br>
+照顾生命。伤害生命。 <br>
+神是生命的主。God is the Lord of life. <br></p>
+
 <p>生命是用来做什么的呢？怎样才是有价值地用了生命而不是浪费生命呢？<br>
 What is life use for? How is it using life in a right way instead of wasting it? <br>
 For a long long time, I don't understand life, even the basic of it. <br>
